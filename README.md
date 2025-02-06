@@ -2,7 +2,7 @@
 
 **Software Engineer | Tech Lead | AI Enthusiast**  
 📍 Leads, United Kingdom  
-📞 +44-7398451581 | 📧 career.mosespeter@gmail.com  
+📧 career.mosespeter@gmail.com  
 🔗 [LinkedIn](linkedin.com/in/mohemos)
 
 ---
